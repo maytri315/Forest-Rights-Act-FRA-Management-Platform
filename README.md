@@ -1,0 +1,1 @@
+# Forest-Rights-Act-FRA-Management-Platform
